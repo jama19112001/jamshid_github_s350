@@ -1,1 +1,1 @@
-# Jamshid - Dasturiy injiniringga kirish github amaliyot
+# G'iyosov Jamshid - Dasturiy injiniringga kirish github amaliyot
